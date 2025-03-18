@@ -1,4 +1,4 @@
-# Hi There
+Delivery Manager | Principal Solution Architect | Lead MLOps Engineer | Generative AI & LLM Systems Designer | Scalable & Ethical Tech Innovator | AI Specialist | Client Relationship Manager | Team Leadership
 
 Proven leader with over 19 years of hands-on experience in data science, Analytics and people management, emphasizing expertise in leadership, consulting, and successful project delivery. A distinguished track record in the Mortgage, insurance, credit and financial sectors highlights a unique combination of technical proficiency and industry-specific insights. I have held various roles in Project Management and Delivery for diverse projects, particularly in Advanced Analytics, Machine Learning (ML/AI), Mortgage, Credit and consumer Operations.
 
